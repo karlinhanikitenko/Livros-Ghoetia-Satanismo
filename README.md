@@ -1,2 +1,1 @@
-# Livros-Ghoetia-Satanismo
-Alguns livros sobre ghoetia e satanismo.
+Goethia e meu SAGRADO
